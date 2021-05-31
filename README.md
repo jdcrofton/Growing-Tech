@@ -1,2 +1,2 @@
 # Growing-Tech
-How technology is opening new industry's for many
+How technology is opening new industries for many
